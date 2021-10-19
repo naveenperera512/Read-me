@@ -13,7 +13,7 @@
 
 - 👨‍💻 All of my projects are available at **[My Portfolio](https://github.com/naveenperera512)**
 
-- 📫 How to reach me **naveenperera512@gmail.com**
+- 📫 How to reach me **naveenpereraonline@gmail.com**
 
 - ⚡ Fun fact **I play games and travel to different places.**
 
